@@ -1,2 +1,3 @@
-# odiy-
-dastur yoq
+# yangi loyha kutilmoqada 
+Albatta Alloh xohlasa
+
